@@ -1,0 +1,1 @@
+If u follow the recepie correctly u will get a chance to taste a delicious rich chicken curry at home.
